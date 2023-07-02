@@ -1,3 +1,3 @@
 # Yeldos Serikpayev
-##contacts
+##contacts: +77082912955
 #previous job
